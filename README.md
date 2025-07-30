@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.pinimg.com/1200x/7c/7c/7e/7c7c7e37b115716ca38a9aeb239f6040.jpg"/>
+  <img src="https://media1.tenor.com/m/N36_hIJYWYcAAAAC/ren-amamiya-book.gif"/>
 </p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[carrd](https://diirtywork.carrd.co)ㅤㅤ[ata](https://antikechi.atabook.org)ㅤㅤ[pronouns cc..wip]()
