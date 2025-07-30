@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://media1.tenor.com/m/zUPU_IViIzkAAAAd/connorgifsoicanfindit-persona-5.gif"/>
+  <img src="https://i.pinimg.com/736x/d3/99/e7/d399e750cc15e4a5ed98e7be218751c5.jpg"/>
 </p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[carrd](https://diirtywork.carrd.co)ㅤㅤ[ata](https://antikechi.atabook.org)ㅤㅤ[pronouns cc..wip]()
