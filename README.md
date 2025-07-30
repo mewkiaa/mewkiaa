@@ -4,4 +4,4 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[carrd](https://diirtywork.carrd.co)ㅤㅤ[ata](https://antikechi.atabook.org)ㅤㅤ[pronouns cc..wip]()
 
-ㅤㅤㅤㅤi will eventually finish my socials
+ㅤㅤㅤㅤi will eventually finish my socialsㅤㅤㅤㅤ,ㅤㅤㅤㅤsign ataㅤㅤㅤㅤ&.ㅤㅤㅤㅤc+h is ok.
