@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.pinimg.com/736x/d3/99/e7/d399e750cc15e4a5ed98e7be218751c5.jpg"/>
+  <img src="https://i.pinimg.com/1200x/7c/7c/7e/7c7c7e37b115716ca38a9aeb239f6040.jpg"/>
 </p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[carrd](https://diirtywork.carrd.co)ㅤㅤ[ata](https://antikechi.atabook.org)ㅤㅤ[pronouns cc..wip]()
