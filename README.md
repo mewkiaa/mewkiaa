@@ -7,4 +7,4 @@
 ㅤㅤㅤㅤㅤ i will eventually finish my socialsㅤㅤㅤㅤ,ㅤㅤㅤㅤsign ataㅤㅤㅤㅤ.
 
 
-note : i'm currently not on muchㅤ,ㅤdealing with mental issuesㅤ+ㅤother thingsㅤ,ㅤwish me luck ^_^ remaking this at somepoint, will still be akechi themed the persona 5 hyperfix is choking me
+note : i am fucking losing it, wont talk or joke around much. sorry if i seem like a bitch, not intentional.
