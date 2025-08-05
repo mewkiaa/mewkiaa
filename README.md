@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://media1.tenor.com/m/N36_hIJYWYcAAAAC/ren-amamiya-book.gif"/>
+  <img src="https://media1.tenor.com/m/Ec4Tk0bpQ9YAAAAd/johnny-silverhand-cyberpunk.gif"/>
 </p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[carrd](https://diirtywork.carrd.co)ㅤㅤ[ata](https://antikechi.atabook.org)ㅤㅤ[pronouns cc..wip]()
