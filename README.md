@@ -9,4 +9,4 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[carrd](https://diirtywork.carrd.co)ㅤㅤ[ata](https://antikechi.atabook.org)ㅤㅤ[pronouns cc](https://prns.cc/kbilv)
 
-ㅤㅤㅤㅤㅤ i will eventually finish my socialsㅤㅤㅤㅤ,ㅤㅤㅤㅤsign ataㅤㅤㅤㅤ.
+ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤsign ataㅤㅤㅤㅤ.
