@@ -1,4 +1,9 @@
 <p align="center">
+</a>
+<img src="https://komarev.com/ghpvc/?username=mewkiaa&color=e69cbc&base=1000&style=flat&label=wip" />⠀
+<p align="center">
+
+<p align="center">
   <img src="https://media1.tenor.com/m/Ec4Tk0bpQ9YAAAAd/johnny-silverhand-cyberpunk.gif"/>
 </p>
 
