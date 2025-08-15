@@ -10,3 +10,5 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[carrd](https://diirtywork.carrd.co)ㅤㅤ[ata](https://antikechi.atabook.org)ㅤㅤ[pronouns cc](https://prns.cc/kbilv)
 
 ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤsign ataㅤㅤㅤㅤ.
+
+pcc might be outdated haha
