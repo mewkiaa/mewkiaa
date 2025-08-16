@@ -7,7 +7,7 @@
   <img src="https://media1.tenor.com/m/YSTGx-dv6aEAAAAC/ichiryusai-madarame-persona-5.gif"/>
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[carrd](https://diirtywork.carrd.co)ㅤㅤ[ata](https://antikechi.atabook.org)ㅤㅤ[pronouns cc](https://prns.cc/kbilv)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[carrd](https://diirtywork.carrd.co)ㅤㅤ[ata](https://antikechi.atabook.org)ㅤㅤ[pronouns cc]()
 
 ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤsign ataㅤㅤㅤㅤ.
 
